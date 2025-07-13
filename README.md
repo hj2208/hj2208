@@ -1,3 +1,3 @@
 # harry
-## we do some random stuff round here
-## use my tools ;]
+## created a tools website for my favourite games and other stuff or something
+## pretty cool dude cant lie
